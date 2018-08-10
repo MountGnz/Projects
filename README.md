@@ -1,2 +1,2 @@
 # Projects
-Going to have project pages here
+Going to have project pages/ideas here
